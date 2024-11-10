@@ -1,2 +1,2 @@
-# LGQNThawg-
+# Thắng con-
 Ok
